@@ -1,16 +1,21 @@
-## Hi there 👋
+# cepi-2-ano
+## ⊹ ₊  ⁺‧₊˚ ♡ ପ(๑•ᴗ•๑)ଓ ♡˚₊‧⁺ ₊ ⊹
+<img width="900" height="250" alt="062b9c055534c346eb2ddebe8a9d4d56" src="https://github.com/user-attachments/assets/7b035bb8-29b2-44b2-8037-2a0a12019fc2" />
+<img width="900" height="82" alt="pink-divider" src="https://github.com/user-attachments/assets/03363d2b-1500-42df-b90b-b882bcb74cfb" />
 
-<!--
-**P1erzs/P1erzs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Sobre mim!!
+- 🎼 Me chamo Ana Luiza R. Glinke
+- 🎹 Atualmente estou estudando no CEPI Osvaldo da Costa Meireles
+- 🌱 eu ja fiz coisas legais 
+- 🎬 Como entrar em contato comigo: analuizarodriguesglinke@gmai.com
+- ♟️ Pronomes: Ela/Dela
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<img width="900" height="270" alt="image" src="https://c.tenor.com/P7m-KCmeKvEAAAAC/tenor.gif" />
+
+
+
+<img width="900" height="82" alt="pink-divider" src="https://github.com/user-attachments/assets/03363d2b-1500-42df-b90b-b882bcb74cfb" />
+
+

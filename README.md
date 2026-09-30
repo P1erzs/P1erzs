@@ -12,7 +12,7 @@
 
 ⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
-<img width="910" height="270" alt="image" src="https://c.tenor.com/P7m-KCmeKvEAAAAC/tenor.gif" />
+<img width="920" height="270" alt="image" src="https://c.tenor.com/P7m-KCmeKvEAAAAC/tenor.gif" />
 
 
 

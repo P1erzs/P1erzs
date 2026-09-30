@@ -10,7 +10,7 @@
 - 🎬 Como entrar em contato comigo: analuizarodriguesglinke@gmai.com
 - ♟️ Pronomes: Ela/Dela
 
-⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
+⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹
 
 <img width="900" height="270" alt="image" src="https://c.tenor.com/P7m-KCmeKvEAAAAC/tenor.gif" />
 
